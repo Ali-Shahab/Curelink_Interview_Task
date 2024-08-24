@@ -1,0 +1,1 @@
+Hi, my name is Ali Shahab, and I work as an AI Engineer with over 2.5 years of experience in the field. I'm thrilled to present the solution for the task provided by Curelink. I am genuinely excited about the opportunity to contribute to an innovative organization like Curelink, where I believe my skills and passion for AI can make a meaningful impact.
